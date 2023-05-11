@@ -1,0 +1,2 @@
+# Nicaraguan Political Prisoners
+ When the 222 political prisoners were placed on a flight from Managua to D.C., a momentary sense of freedom was felt among Nicaraguans. But reality struck them when they stood foot on American soil, losing their citizenship and feeling that the years that they spent behind bars had been in vain. Most of the hundreds of excarcerated Nicaraguans had been arrested for political reasons. They are now stateless, facing new struggles far away from their home country and unable to return.
